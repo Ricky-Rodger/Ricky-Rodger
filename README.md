@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Ricky-Rodger
-- 👀 I’m interested in n
-- 🌱 I’m currently learning u
-- 💞️ I’m looking to collaborate on n
-- 📫 How to reach me y
-- 😄 Pronouns: a
+- 👀 I’m interested in not existing
+- 🌱 I’m currently learning nunya
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me u dont
+- 😄 Pronouns: any
 - ⚡ Fun fact: buisness
 
 <!---
