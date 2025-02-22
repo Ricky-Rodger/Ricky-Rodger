@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me u dont
 - 😄 Pronouns: any
-- ⚡ Fun fact: buisness
+- ⚡ Fun fact: my spelling is atrocious
 
 <!---
 Ricky-Rodger/Ricky-Rodger is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
